@@ -1,0 +1,1 @@
+# Båstads kommun
